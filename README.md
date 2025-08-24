@@ -15,6 +15,8 @@
  
  𓂃۶ৎ audhd + plus secret more
 
+ ───── ⋆ ─────
+
  BYF . BYI
 
  ♡︶︶ feel free to interact! i'm a little shy and sometimes off tab, so whisper me please! i'm very open to making new friends though!
@@ -30,6 +32,8 @@
  ♡︶︶ inspo is a-ok, copying is not
 
  ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, off (2008), rosegarden funeral party, a lot of other roblox games!
+
+ ───── ⋆ ─────
  
  DNI
 
