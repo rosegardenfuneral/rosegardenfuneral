@@ -31,6 +31,8 @@
 
  ♡︶︶ inspo is a-ok, copying is not
 
+ ♡︶︶ i prefer 18+ server for obvious reasons but occasionally play safe to look at other peoples pretty skins or my friends
+
  ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, off (2008), rosegarden funeral party, a lot of other roblox games!
 
  ───── ⋆ ─────
