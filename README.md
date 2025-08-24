@@ -1,1 +1,4 @@
 ![pinkcutrecore.gif]
+
+
+-ˋˏ✄┈┈┈┈
