@@ -21,4 +21,4 @@
 
 ♡︶︶ youngling like under 16 ftmp..
 
-♡︶︶ 
+♡︶︶ fan/stan of: dramatical murders, sol from tkatb, john doe from john doe (not roblox), nijisanji
