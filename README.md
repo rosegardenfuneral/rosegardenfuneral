@@ -29,7 +29,7 @@
 
  ♡︶︶ inspo is a-ok, copying is not
 
- ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, a lot of other roblox games!
+ ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, off (2008), rosegarden funeral party, a lot of other roblox games!
  
  DNI
 
@@ -38,3 +38,5 @@
 ♡︶︶ youngling like under 16 ftmp..
 
 ♡︶︶ fan/stan of: dramatical murders, sol from tkatb, john doe from john doe (not roblox), nijisanji
+
+♡︶︶ constant, constantly, like so constant nsfw humor nty
