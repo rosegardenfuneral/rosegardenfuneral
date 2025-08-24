@@ -14,5 +14,11 @@
  𓂃۶ৎ 21 yrs old
  
  𓂃۶ৎ audhd + plus secret more
- 
 
+ DNI
+
+♡︶︶ if i would fit YOUR DNI
+
+♡︶︶ youngling like under 16 ftmp..
+
+♡︶︶ 
