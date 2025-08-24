@@ -15,6 +15,20 @@
  
  𓂃۶ৎ audhd + plus secret more
 
+ BYF . BYI
+
+ ♡︶︶ feel free to interact! i'm a little shy and sometimes off tab, so whisper me please! i'm very open to making new friends though!
+
+ ♡︶︶ i like and use tonetags but not excessively
+
+ ♡︶︶ i hide people very freely, so if you make me uncomfortable on purpose, its bye-bye
+
+ ♡︶︶ if our ponies look similar, you can literally just.. ask me to change mine idk accidental plagiarism happens + my style is consistent
+
+ ♡︶︶ inspo is a-ok, copying is not
+
+ ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, a lot of other roblox games!
+ 
  DNI
 
 ♡︶︶ if i would fit YOUR DNI
