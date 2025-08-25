@@ -43,6 +43,6 @@
 
 ♡︶︶ youngling like under 16 ftmp..
 
-♡︶︶ fan/stan of: dramatical murders, sol from tkatb, john doe from john doe (not roblox), nijisanji, mindless self indulgence, jimmy euringer
+♡︶︶ fan/stan of: dramatical murders, sol from tkatb, john doe from john doe (not roblox), nijisanji, jimmy euringer
 
 ♡︶︶ constant, constantly, like so constant nsfw humor nty
