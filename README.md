@@ -35,6 +35,8 @@
 
  ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, off (2008), rosegarden funeral party, a lot of other roblox games!
 
+ ♡︶︶ some of my fave chars are griefer, any form of roblox guest i love roblox guest sm!!, vinestaff, hyperlaser, lady (dmc), zacharie, eunoia, nashatra, nicholas d wolfwood, i dunno i have so many more <3
+
  ───── ⋆ ─────
  
  DNI
