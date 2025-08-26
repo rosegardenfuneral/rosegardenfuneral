@@ -23,6 +23,8 @@
 
  ♡︶︶ i like and use tonetags but not excessively
 
+ ♡︶︶ i update my ponytown status accordingly
+
  ♡︶︶ feel free to ask me for any socials, i may or may not have/use them though
 
  ♡︶︶ i hide people very freely, so if you make me uncomfortable on purpose, its bye-bye
