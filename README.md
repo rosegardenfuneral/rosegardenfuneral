@@ -50,3 +50,5 @@
 ♡︶︶ fan/stan of: dramatical murders, sol from tkatb, john doe from john doe (not roblox), nijisanji, jimmy euringer
 
 ♡︶︶ constant, constantly, like so constant nsfw humor nty
+
+♡︶︶ not rly a dni per se, but shopdebt interact w caution (a cis man destroyed me recently)
