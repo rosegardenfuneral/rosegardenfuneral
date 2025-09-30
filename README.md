@@ -35,9 +35,9 @@
 
  ♡︶︶ i prefer 18+ server for obvious reasons but occasionally play safe to look at other peoples pretty skins or my friends
 
- ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, off (2008), rosegarden funeral party, frozen soul (dg), regretevator, a lot of other roblox games! getting into limbus company!!
+ ♡︶︶ my interests are block tales, any roblox asymm horror, dead by daylight, phighting, devil may cry, off (2008), rosegarden funeral party, frozen soul (dg), regretevator, a lot of other roblox games! getting into project moon <3
 
- ♡︶︶ some of my fave chars are griefer, any form of roblox guest i love roblox guest sm!!, vinestaff, hyperlaser, lady (dmc), zacharie, eunoia, nashatra, nicholas d wolfwood, i dunno i have so many more <3
+ ♡︶︶ some of my fave chars are griefer, any form of roblox guest i love roblox guest sm!!, vinestaff, hyperlaser, lady (dmc), zacharie, eunoia, nashatra, adelaide, nicholas d wolfwood, heathcliff
 
  ───── ⋆ ─────
  
